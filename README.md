@@ -26,3 +26,4 @@
 ### See also
 Twitter: [@novablog_diary](https://twitter.com/novablog_diary)  
 Blog: [Novaの日記](https://novablog.work/)
+YouTube: [nova](https://www.youtube.com/channel/UCr9YJ7h94v5AykF9jWEaYeA)
